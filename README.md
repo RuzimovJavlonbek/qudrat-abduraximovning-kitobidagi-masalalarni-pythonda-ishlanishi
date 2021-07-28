@@ -1,0 +1,1 @@
+# qudrat-abduraximovning-kitobidagi-masalalarni-pythonda-ishlanishi
